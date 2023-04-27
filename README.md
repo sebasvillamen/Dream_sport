@@ -1,1 +1,1 @@
-Creación nuevo 
+Nuevo 
